@@ -1,1 +1,1 @@
-My name is Nicholas James Peralta, sabog ang cuteness.
+My name is Nico James Peralta, sabog ang cuteness.
